@@ -1,0 +1,1 @@
+Daily events entry
